@@ -9,7 +9,7 @@ written for the
 [make.fun](https://make.fun/bounty/u-gentle-badger-68-make-the-judge-smile-9228676d)
 bounty "Make the Judge Smile".
 
-> My grandmother called today just to say the plums are ripe, then stayed on the line while I ate one, crunching along with me over the phone.
+> My grandmother called today just to say the plums she mailed should be ripe by now, then stayed on the line so we could eat one together, both of us slurping, until she said 'Good' and hung up.
 
 ## How it works
 
